@@ -21,7 +21,7 @@ Born and raised in Gauteng, Pretoria, I am a passionate System Developer with a 
 - **Reading Self-Motivation Books:** Fueling my growth mindset and personal development.
 
 ## 🤝 Connect with Me
-- [LinkedIn: Kegomoditswe Badimo](https://www.linkedin.com/in/kegomoditswe-badimo/)
+- (https://www.linkedin.com/in/kegomoditswe-badimo/)
 
 ---
 
